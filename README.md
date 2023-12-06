@@ -1,1 +1,1 @@
-# rushi-college
+# rushithajujjuri 
